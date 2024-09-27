@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and Problem Solving
 - 🌱 I’m currently learning Html, Css, Javascript
 - 💞️ I’m looking to collaborate on Web Projects
-- 📫 How to reach me dhriwaladiti17@gmail.com
+- 📫 How to reach me dhariwaladiti17@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Love exploring new places 
 
